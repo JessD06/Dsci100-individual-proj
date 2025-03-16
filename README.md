@@ -1,1 +1,0 @@
-# Dsci100-individual-proj
